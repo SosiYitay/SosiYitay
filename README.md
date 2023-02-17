@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @SosiYitay
 - 👀 I’m interested in contributing on social community. Special on solving social problems. 
-- 🌱 I’m currently learning my Msc in management in Addis ababa university and in addition i am learning my Msc in Finanace and Investement in Lunar international college.
+- 🌱 I finished my Bsc degree in Electrical and compuer engineering from Arba minch University, my Msc in management from Addis ababa university and my second Msc in Finanace and Investement from Lunar international college.
+- 🌱 Currently i am working in lunar International college as Head of an acadamic unit.
 - 💞️ I’m looking to collaborate on a team work.
 - 📫 How to reach me via my email address sosinayitay.sy@gmail.com and with my Whatsapp, Instagram and Telegram +251911679044.
 
