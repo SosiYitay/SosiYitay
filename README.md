@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SosiYitay
+- 👋 Hi, I’m @SosYitay
 - 👀 I’m interested in contributing on social community. Special on solving social problems. 
 - 🌱 I finished my Bsc degree in Electrical and compuer engineering from Arba minch University, my Msc in management from Addis ababa university and my second Msc in Finanace and Investement from Lunar international college.
 - 🌱 Currently i am working in lunar International college as Head of an acadamic unit.
